@@ -19,4 +19,6 @@
 
 #OUTPUT
 
+![Image](https://github.com/user-attachments/assets/df7ceb74-09d4-4fd5-87d0-200ca2c04b58)
 
+![Image](https://github.com/user-attachments/assets/2f52e8c9-4bf2-4d5f-bc44-ae1e0ff672b1)
